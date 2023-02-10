@@ -1,11 +1,11 @@
-# Hey you found me! I'm __[Nick Diesslin](https://www.ripleys.com/wp-content/uploads/2017/04/pizza-trick-1.gif)__
+# Hey you found me! I'm __[Nick Diesslin](https://drive.google.com/file/d/1HDhilutsT944DdP8yeg82l2QHDppOJtW/view?usp=sharing)__
 
 [Make yourself a sauce packet!](https://sauceymessages.ml)
 
 A little bit about me, I'm a professional __Pizza acrobat.__ I've been spinning pizza since I was around 13 years old. I have been seen on:
-- [America's Got Talent](https://www.youtube.com/watch?v=a7fDGbPs0c4)
+- [America's Got Talent](https://drive.google.com/file/d/1HDhilutsT944DdP8yeg82l2QHDppOJtW/view?usp=sharing)
 - [The Austin Show](https://youtu.be/qfZK5BrpjxI?t=5876)
-- The Tonight Show Starring Jimmy Fallon
+- [The Tonight Show Starring Jimmy Fallon](https://drive.google.com/file/d/1Qz5-TDqzwdmIT2LibKlRd6UySrzxj2Nn/view?usp=sharing)
 - The Oprah Winfrey Show
 - [Ripley's Believe it or not](https://www.ripleys.com/weird-news/pizza-acrobats/)
 - [Great Big Story](https://www.youtube.com/watch?v=ODOoYGTVvHc)
