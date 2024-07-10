@@ -1,6 +1,6 @@
 # Hey you found me! I'm __[Nick Diesslin](https://drive.google.com/file/d/1HDhilutsT944DdP8yeg82l2QHDppOJtW/view?usp=sharing)__
 
-[Make yourself a sauce packet!](https://sauceymessages.ml)
+[Make yourself a sauce packet!](https://saucey-messages.web.app)
 
 A little bit about me, I'm a professional __Pizza acrobat.__ I've been spinning pizza since I was around 13 years old. I have been seen on:
 - [America's Got Talent](https://drive.google.com/file/d/1HDhilutsT944DdP8yeg82l2QHDppOJtW/view?usp=sharing)
@@ -33,8 +33,7 @@ Some of The Technologies I work with:
 Where to find me:
 - [Personal Site](https://ndiesslin.com)
 - [LinkedIn](https://www.linkedin.com/in/nicholasdiesslin/)
-- [Twitter](https://twitter.com/ndiesslin)
 
 
-[Make yourself a sauce packet already!](https://sauceymessages.ml)
+[Make yourself a sauce packet already!](https://saucey-messages.web.app)
 
